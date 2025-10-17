@@ -1,1 +1,0 @@
-# Auto-Capture-Smeile-Selfie
